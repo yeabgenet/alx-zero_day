@@ -1,1 +1,1 @@
-Time is gold
+Be Happy
